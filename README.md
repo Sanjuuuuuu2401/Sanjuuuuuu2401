@@ -11,6 +11,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning  **Technical Support Engineering**
 - 📫 How to reach Portfolio: **https://github.com/Sanjuuuuuu2401/Sanjuuuuuu2401.github.io/**
 - 📫 How to reach me: **sanju24official@gmail.com**
+- Resume : **https://drive.google.com/file/d/1OxLd64v9KXX650VwiBkpVAwpwi0koqqQ/view?usp=share_link**
 
 <br><br>
 <br><br>
